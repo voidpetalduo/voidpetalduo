@@ -1,4 +1,4 @@
-https://tenor.com/view/nezoshoki-bliss-smp-nezo-gif-2702463514705081768
+
 
 <!--
 **voidpetalduo/voidpetalduo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
